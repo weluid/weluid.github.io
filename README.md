@@ -1,1 +1,1 @@
-*** TROLOLO ***
+Denis + VERKA = KEKS!!!
