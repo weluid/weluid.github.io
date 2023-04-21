@@ -1,1 +1,1 @@
-Denis + VERKA = KEKS!!!
+KEKS!!!
